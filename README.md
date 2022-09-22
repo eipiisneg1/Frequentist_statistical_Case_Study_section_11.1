@@ -1,0 +1,2 @@
+# Frequentist_statistical_Case_Study_section_11.1
+Frequentist_statistical_Case_Study_section_11.1
